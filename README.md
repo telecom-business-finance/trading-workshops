@@ -1,1 +1,1 @@
-# trading-workshops
+# Telecom Business & Finance : Trading Workshops
